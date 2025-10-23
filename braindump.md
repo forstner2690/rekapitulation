@@ -10,10 +10,13 @@ gegeben. Und wir haben über Gott diskutiert und ich ur überheblich dass es ihn
 
 Wien, Hausleiten, Skaterplatz Stockerau, Donauinsel, etc.
 Volksschule, Gym, HLW, Lehre
+Wohnungen: Langobardenstraße, Hausleiten, Brünnerstraße 1, Kubinplatz, Brünnerstraße 2
 Cliquen: Täubl, Rafi, Hubi, Armando, Viktor, usw. Nina Tomek, Nina Lonin, Die girls aus der Nachbarortschaft? Skater, Wie ich auf die Donauinsel kam - vom Hippy-Caffee und dort war aber niemand deshalb dann Melö angerufen und sie sagt komm Donauinsel und ich bin zur falschen gefahren (u6) und dann erst u1.
 
 Als ich beim Handelskai überfallen wurde, weil ich vorher mit Kiffer-Phil das Ganja von der u1 endstation geholt habe. Vorher als ich "Punker" war und dann den Change zu "hippy" gemacht habe. 
 
 ---
-Karim hab ich beim Probearbeiten kennengelernt. Am Anfang sind wir nach der Arbeit immer ur lange spazieren gegangen und haben gechillt. Blabla ganze Lehre, Berufsschule, bis zur Verhaftung, Hefen Stockerau, etc.
+Karim hab ich beim Probearbeiten kennengelernt. Am Anfang sind wir nach der Arbeit immer ur lange spazieren gegangen und haben gechillt. Blabla ganze Lehre, Berufsschule, bis zur Verhaftung, Hefen Stockerau, etc
+
 ---
+Bei Opa, Oma; im Garten als Kind als der Opa mir aus Holz so kleine Figuren gemacht hat. Und in der VS hab ich anscheinend ultra gerne gezeichnet , und aus Müslikartons Karten ausgeschnitten und dann selber welche gebastelt. 
